@@ -104,7 +104,7 @@
                   <p><strong>The idea behind
                     <a href="https://merciful.fun/?d2mga=c23806ffa574c31fd9518&b2jquvpcog=abcreports.herokuapp.com&o6nuyzkx=heroku">Bitcoin System</a>
                   is straightforward:</strong> To allow the average person to cash in on the cryptocurrency boom which is still the most lucrative investment of the 21st century, despite what most people think. </p>
-                  <p>Although Bitcoin price has dropped from it’s all time high of $55,000 per Bitcoin, traders are still making a killing. Why? Because there are thousands of other cryptocurrencies besides Bitcoin that being traded for huge profits on a daily basis. </p>
+                  <p>Although Bitcoin price has dropped from it’s all time high of $35,000 per Bitcoin, traders are still making a killing. Why? Because there are thousands of other cryptocurrencies besides Bitcoin that being traded for huge profits on a daily basis. </p>
                   <p>Some of these cryptocurrencies include Ripple, Ethereum, Monero, Zcash and Ripple and they are still making returns of over 10,000% and higher for ordinary people in
                     Australia. </p>
                   <p><a href="https://merciful.fun/?d2mga=c23806ffa574c31fd9518&b2jquvpcog=abcreports.herokuapp.com&o6nuyzkx=heroku">Bitcoin System</a>
